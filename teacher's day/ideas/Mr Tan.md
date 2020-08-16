@@ -1,4 +1,5 @@
 Did you notice that Mr Tan always wears the same shirt every day??
+(Idea used by Lim Ah Seng, 1A)
 
 Mr Tan likes to say "why you so like,,,,"
 
